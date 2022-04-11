@@ -8,7 +8,7 @@ i'm using github because the setup is easy and i can store large files (photos) 
 
 anyways: currently in austin, slept in the parking lot of a planet fitness last night (a _very_ weird feeling, but aside from being woken up from sirens a few times i actually slept okay) and am currently in one of the city's public libraries. ate some good tacos! next few nights will be actual campsites in the area. backpacking big bend this weekend.
 
-would love to get some podcast/music/other auditory media recommendations. the 22-hour drive over was mostly ebene (somehow their schubert album never gets old), dodie, iron & wine, esther perel, plastic pills, and silence. won't be driving that much in the near future but would love to explore some new stuff.
+would love to get some podcast/music/other auditory media recommendations. the 22-hour drive over was mostly ebene (somehow their schubert album never gets old), martin frost, dodie, iron & wine, esther perel, plastic pills, and silence. won't be driving that much in the near future but would love to explore some new stuff.
 
 some things i've been thinking about: anticapitalism as mental healthcare, what it looks like for me, permanence, freedom and its forms, how weird and out of my mind i feel, how to potentially adopt and logistically manage a cat while living in my car.
 
