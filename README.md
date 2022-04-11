@@ -1,5 +1,3 @@
-# turtleblog
-
 ### hello!
 
 welcome! for anyone confused about the name: it's not really significant. a pun on my first email address, nothing more.
