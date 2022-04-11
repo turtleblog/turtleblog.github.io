@@ -8,7 +8,7 @@ i've been thinking maybe a little too much about whether or not to do this blog 
 
 i'm using github because the setup is easy and i can store large files (photos) here (i think??), also it allows me to be very minimalist about it.
 
-anyways: currently in austin, slept in the parking lot of a planet fitness last night (a _very_ weird feeling, but aside from being woken up from sirens a few times i actually slept okay) and am currently in one of the city's public libraries. ate some good tacos!
+anyways: currently in austin, slept in the parking lot of a planet fitness last night (a _very_ weird feeling, but aside from being woken up from sirens a few times i actually slept okay) and am currently in one of the city's public libraries. ate some good tacos! next few nights will be actual campsites in the area. backpacking big bend this weekend.
 
 would love to get some podcast/music/other auditory media recommendations. the 22-hour drive over was mostly ebene (somehow their schubert album never gets old), dodie, iron & wine, esther perel, plastic pills, and silence. won't be driving that much in the near future but would love to explore some new stuff.
 
