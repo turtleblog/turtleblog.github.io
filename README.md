@@ -12,6 +12,6 @@ anyways: currently in austin, slept in the parking lot of a planet fitness last 
 
 would love to get some podcast/music/other auditory media recommendations. the 22-hour drive over was mostly ebene (somehow their schubert album never gets old), dodie, iron & wine, esther perel, plastic pills, and silence. won't be driving that much in the near future but would love to explore some new stuff.
 
-some things i've been thinking about: anticapitalism as mental healthcare, what that looks like for me, permanence, freedom and its forms, how weird i feel, how to potentially adopt and logistically manage a cat while living in my car.
+some things i've been thinking about: anticapitalism as mental healthcare, what it looks like for me, permanence, freedom and its forms, how weird and out of my mind i feel, how to potentially adopt and logistically manage a cat while living in my car.
 
 very tired but feeling good! more later, hopefully!
