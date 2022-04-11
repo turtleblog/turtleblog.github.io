@@ -1,4 +1,5 @@
 ### hello!
+![IMG_1775](https://user-images.githubusercontent.com/103443757/162840090-8b2a6e55-82fa-421c-a944-a22497d1dedd.JPG)
 
 welcome! for anyone confused about the name: it's not really significant. a pun on my first email address, nothing more.
 
