@@ -1,38 +1,17 @@
-## Welcome to GitHub Pages
+#turtleblog
 
-You can use the [editor on GitHub](https://github.com/turtleblog/turtleblog.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+### hello!
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+welcome! for anyone confused about the name: it's not really significant. a pun on my first email address, nothing more.
 
-### Markdown
+i've been thinking maybe a little too much about whether or not to do this blog at all, but i think for now i've settled on using it as a catalog primarily for thoughts and feelings and photos. i don't really want to dox myself so i won't include too many specific/identifying details. i also don't want this to take up too much headspace and definitely don't want to let it become an objective for what i do so i won't commit too much to it. most of all, though, if you're curious about what i'm actually doing on a daily basis please text me! or call! or FaceTime! my days are always better when i hear from you :blush:
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+i'm using github because the setup is easy and i can store large files (photos) here (i think??), also it allows me to be very minimalist about it.
 
-```markdown<img width="440" alt="Screen Shot 2022-02-27 at 9 37 11 PM" src="https://user-images.githubusercontent.com/103443757/162788960-22f3e409-328b-4f7c-861e-3bbc34006680.png">
+anyways: currently in austin, slept in the parking lot of a planet fitness last night (a _very_ weird feeling, but aside from being woken up from sirens a few times i actually slept okay) and am currently in one of the city's public libraries. ate some good tacos!
 
-Syntax highlighted code block
+would love to get some podcast/music/other auditory media recommendations. the 22-hour drive over was mostly ebene (somehow their schubert album never gets old), dodie, iron & wine, esther perel, plastic pills, and silence. won't be driving that much in the near future but would love to explore some new stuff.
 
-# Header 1
-## Header 2
-### Header 3
+some things i've been thinking about: anticapitalism as mental healthcare, what that looks like for me, permanence, freedom and its forms, how weird i feel, how to potentially adopt and logistically manage a cat while living in my car.
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/turtleblog/turtleblog.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+very tired but feeling good! more later, hopefully!
