@@ -1,3 +1,15 @@
+### a few photos from austin (4/13)
+heading west tonight
+
+![DSC03062](https://user-images.githubusercontent.com/103443757/163253447-af472342-2a5d-401a-a652-0633769ef819.jpeg)
+![DSC03065](https://user-images.githubusercontent.com/103443757/163253496-52f12c9a-0530-4ce5-8402-4c6044430115.jpeg)
+![DSC03067](https://user-images.githubusercontent.com/103443757/163253506-39a7ef1f-bfb9-4d64-9fe6-51b52bb93c0f.jpeg)
+![DSC03083](https://user-images.githubusercontent.com/103443757/163253577-9e337c95-cf59-46af-bf21-ccbefd918e8e.jpeg)
+![DSC03097](https://user-images.githubusercontent.com/103443757/163253685-330fa660-a0bf-44a3-8ec0-f953e34249ae.jpeg)
+![DSC03149](https://user-images.githubusercontent.com/103443757/163253928-201962be-5392-482b-908e-a2ff528d4baa.jpeg)
+![DSC03114](https://user-images.githubusercontent.com/103443757/163254108-740bf033-4901-4065-9535-cba0f8dbd473.jpeg)
+
+
 ### hello!
 ![IMG_1775](https://user-images.githubusercontent.com/103443757/162840090-8b2a6e55-82fa-421c-a944-a22497d1dedd.JPG)
 
