@@ -1,3 +1,45 @@
+### big bend (4/17)
+
+!
+
+![DSC03221](https://user-images.githubusercontent.com/103443757/163724439-d32f736b-b192-462b-9bf0-676f429fef0e.jpg)
+![DSC03226](https://user-images.githubusercontent.com/103443757/163724444-d4499982-b878-4441-8c92-1068c09aaf12.jpg)
+![DSC03256](https://user-images.githubusercontent.com/103443757/163724445-0d0dc1d7-37b8-43ba-9dfd-385b6b8671ae.jpg)
+![DSC03273](https://user-images.githubusercontent.com/103443757/163724446-cce9b49b-ac02-4d17-840f-5d6e2fe2c8d5.jpg)
+
+i think i spent like 6 hours on friday just sitting on the edge of the south rim. felt like the edge of the world. so vast the horizon just disappears. it's the sort of experience that transports your mind to a place so far away that it lies beyond your powers of recollection. my memory is struggling to do it anything close to justice as i write this now &mdash; it seems to live in that inaccessible part of my history where memory fails.
+
+the afternoon before my trip i had a lovely encounter with another carlifer named mario. we shared my ready-made chicken tikka masala in the trailhead parking lot with the sun setting behind us. we talked about his experiences (a year wandering the east coast), my expectations, relationships, past lives.  he taught me how to skateboard, i played some bach for him (poorly), he showed me his favorite edm, i introduced him to the concept of a string quartet and and just intonation. we closed our eyes and listened to ebene's somewhere over the rainbow and he gave me a scented stick of latin american wood to remember him by. very romantic.
+
+i told him how happy i was to have met him, my first experience of the sort, and he said something like with someone like you, the first of many, i'm sure. an incredibly open-minded and warm person from whom i learned a lot. really a new experience and it made me smile a lot.
+
+i can feel myself finding my happiness, and it's a sort of joy that i've not quite felt before. there's something different about it that i'm still trying to dissect, but it's distinct, just a little bit, from the happiness that i've known. not just that it comes from a novel source, but the effect too, i think.
+
+when i started on the trail the next morning i had this overwhelming feeling of gratitude for all the circumstances and people in my life that had made possible my current state of being, and that felt really good. whatever the opposite of regret is (is it gratitude? what _is_ regret?), i think that's what i felt. if you're reading this (or, if you're not reading this), thank you. 😊 
+
+&mdash;
+
+i've been surprised by how smoothly all of this has gone so far. i don't really consider myself a worrisome person (would i be doing this if i were?) but i had a number of fears going into this, thinking there'd be an initial adjustment period, for sure, during which i'd cry and want to go home. what's actually happened is perhaps the opposite, maybe a honeymoon period of some sort. will it end?
+
+also, the prospect of fitting your entire life into a small suv might seem difficult but i've actually realized there are so many things i brought and don't need at all. why did i go to costco specifically to buy a 24-pack of the two _worst_ flavors of clif bars? why did i bring noise-cancelling headphones? why did i let my dad convince me that he needed to hook me up with an entire box of restaurant-grade disposable plastic gloves?
+
+anyways, i'm in el paso now. white sands this week and wwoofing in gila next week! excited
+
+&mdash;
+
+oh also i randomly passed this leaving big bend and ???
+
+![DSC03321](https://user-images.githubusercontent.com/103443757/163724642-90237767-1833-463d-ad5e-79c7a90ddd0c.jpeg)
+
+about a mile down the road:
+
+![DSC03331](https://user-images.githubusercontent.com/103443757/163724645-1686beba-622d-43fd-be28-57988bf11d86.jpeg)
+
+&mdash;
+
+ALSO i realized there's no way to get updates on this blog other than by following the github repository which you need a github account for. sorry about that. maybe i'll try to build some sort of email notifications engine... or maybe it's better that it just exists, and if you feel curious, it's there, if not, it's not! :)
+
+
 ### a few photos from austin (4/13)
 heading west tonight
 
