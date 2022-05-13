@@ -1,6 +1,54 @@
+### long overdue dump
+
+so late, i know, been a little busy. at first i just really didn't have time or the frame of mind to sit down and write, then i realized i'd procrastinated for so long that writing this post with any sense of continuity from the last would be a hassle, then i thought, well, it sorta seems appropriate to let the blog go if what's happening now is just my life and not so much a "trip" anymore...
+
+but now i'm here so i'm gonna post a bunch of photos : ) no time to edit so this is what u get
+
+left off at white sands. unbelievable visual experiences here &mdash went to see the sunset every day i was around. super windy and out-of-this-world and sometimes it felt like i was in that scene in avatar where aang and zuko try to learn firebending from the old masters and they're engulfed in a tornado of rainbow fire
+
+![DSC03428](https://user-images.githubusercontent.com/103443757/168317864-db4601dd-9b98-4478-a910-cc94bdc0e959.JPG)
+![DSC03437](https://user-images.githubusercontent.com/103443757/168317932-bb86a486-28be-44c5-b9a0-158502ffdf50.JPG)
+![DSC03482](https://user-images.githubusercontent.com/103443757/168317958-a8a1a548-26db-4e66-9796-3e5f34e52fd9.JPG)
+![DSC03506](https://user-images.githubusercontent.com/103443757/168318001-27f2ad04-c897-47f7-bd76-45d5008f84d2.JPG)
+![DSC03569](https://user-images.githubusercontent.com/103443757/168318065-309fc5d5-33a0-4291-96a9-f49eee9e3385.JPG)
+![DSC03609](https://user-images.githubusercontent.com/103443757/168318179-4c9ae5ef-9e62-4f55-9986-4bd9a71ceb3e.JPG)
+![DSC03624](https://user-images.githubusercontent.com/103443757/168318306-eab5308f-32e6-4675-aa84-a4302a2c1bf2.JPG)
+
+then i spent a week and a half farming in gila, new mexico. i just won't even try to write about the experience here but long story short i'm going to have my own farm someday (soon). text me if you wanna know more! it was blissful and i miss it :( also including some silver city photos. amazing gem of a town
+
+![DSC03640](https://user-images.githubusercontent.com/103443757/168321022-7cb9cf30-e99f-4cda-a42d-0378e6709a06.jpeg)
+![DSC03636](https://user-images.githubusercontent.com/103443757/168321015-6a670279-d3aa-4c1d-ba4a-2e1fd7815e0e.jpeg)
+![DSC03644](https://user-images.githubusercontent.com/103443757/168321037-61814c58-f882-48c4-84ea-14c24925c21e.jpeg)
+![DSC03645](https://user-images.githubusercontent.com/103443757/168321049-34015205-e143-4709-9468-ffd770c472e5.jpeg)
+![DSC03653](https://user-images.githubusercontent.com/103443757/168321065-2ccca519-b523-411e-bf8b-0889d3c177e9.jpeg)
+![DSC03658](https://user-images.githubusercontent.com/103443757/168321071-f4adab03-1885-4eb4-a28a-a0a392f577f1.jpeg)
+![DSC03664](https://user-images.githubusercontent.com/103443757/168321076-14a966ac-84f0-46b9-856b-3c9459d54841.jpeg)
+![DSC03672](https://user-images.githubusercontent.com/103443757/168321083-6ef61b8c-fe4d-4132-a53c-b158434dbfd8.jpeg)
+![DSC03682](https://user-images.githubusercontent.com/103443757/168321084-0d097a52-886d-415c-94f5-6181a63fcc4a.jpeg)
+![DSC03688](https://user-images.githubusercontent.com/103443757/168321091-6990b417-3c4a-46bb-8730-69b081f3fd72.jpeg)
+![DSC03698](https://user-images.githubusercontent.com/103443757/168321097-84c6abed-e3cd-4747-8d27-efbb7dfa12c3.jpeg)
+![DSC03701](https://user-images.githubusercontent.com/103443757/168321105-68f3c414-7530-4f30-9a0b-f7751e4ff918.jpeg)
+![DSC03708](https://user-images.githubusercontent.com/103443757/168321109-0ed6848b-36d4-470f-ab49-c2261784c561.jpeg)
+![DSC03721](https://user-images.githubusercontent.com/103443757/168321113-a6d82985-393e-436a-b4ed-211c0e15c8da.jpeg)
+![DSC03727](https://user-images.githubusercontent.com/103443757/168321115-cfcf16d6-0cf1-4c83-9635-3676b0d362d6.jpeg)
+
+north az/south ut
+
+![DSC03781](https://user-images.githubusercontent.com/103443757/168322970-7f26ff5c-ba4f-442b-87a1-c005e30b5387.jpeg)
+![DSC03869](https://user-images.githubusercontent.com/103443757/168323002-be327184-5682-4c78-bf00-1b4fb6e15374.jpeg)
+![DSC04018](https://user-images.githubusercontent.com/103443757/168323013-f2c35cdf-a270-4f27-8198-7e46af39c787.jpeg)
+![DSC04031](https://user-images.githubusercontent.com/103443757/168323026-4182602d-40f4-4edf-86f9-09effc1e80b6.jpeg)
+this one is edited a lil
+![DSC04236](https://user-images.githubusercontent.com/103443757/168323051-e60481ae-b36f-4236-ba1b-233c2398701a.jpg)
+![DSC04345](https://user-images.githubusercontent.com/103443757/168324995-143155c0-8484-4a19-8c59-e7a402f8bc29.JPG)
+![DSC04687](https://user-images.githubusercontent.com/103443757/168325284-2c61c2b2-6191-43a8-89cb-fd76af70ad35.JPG)
+![DSC04462](https://user-images.githubusercontent.com/103443757/168325320-a21f5caf-f3c4-46ab-97a8-f0362567e641.jpg)
+![DSC04689](https://user-images.githubusercontent.com/103443757/168325344-04cfb09f-6cfb-4b1c-865d-51cbc731ec8f.JPG)
+
+ok i have too many photos. will continue this later!
+
 ### big bend (4/17)
 
-!
 
 ![DSC03221](https://user-images.githubusercontent.com/103443757/163724439-d32f736b-b192-462b-9bf0-676f429fef0e.jpg)
 ![DSC03226](https://user-images.githubusercontent.com/103443757/163724444-d4499982-b878-4441-8c92-1068c09aaf12.jpg)
